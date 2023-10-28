@@ -1,4 +1,4 @@
-#COMICS 
+# COMICS 
 
 Hola, esta parte del directorio se dedica especificamente a la recopilacion de los trabajos que he trabajado. 
 No prometo actualizarlo diario, pero subire aqui mis trabajos completos. 
