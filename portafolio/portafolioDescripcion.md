@@ -5,3 +5,4 @@ En esta parte hay un pdf en el que se encontraran tanto comisiones que he realiz
 
 **Probablemnte aqui suba tambien mi trabajo de escritura o redaccion.**
 
+[https://drive.google.com/drive/folders/1LgRnyTnhc_HrL4VhQJDECymJIohd9spS?usp=share_link]
