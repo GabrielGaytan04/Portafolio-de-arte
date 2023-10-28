@@ -7,10 +7,6 @@ Muchos de estos los conservo por propositos de archivo y documentacion
 Estos comics son producto de la epoca en la que los dibuje y escribi, entonces hay mucho en que trabajar y desarrollar aun 
 :)
 
-*LINK A LOS COMICS*
+**LINK AL DRIVE DONDE SE GUARDAN LOS COMICS**
 
-**Medianoche**
-[https://drive.google.com/drive/u/1/my-drive]
-
-**Hoy, mañana y siempre**
-[https://drive.google.com/drive/u/1/my-drive]
+[https://drive.google.com/drive/folders/1FTreGaGVwuinCr-zVbWi-wM2WprgaQLA?usp=share_link]
