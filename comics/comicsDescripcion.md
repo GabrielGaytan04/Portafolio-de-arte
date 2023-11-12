@@ -5,7 +5,15 @@ No prometo actualizarlo diario, pero subire aqui mis trabajos completos.
 Muchos de estos los conservo por propositos de archivo y documentacion
 **NO reflejan mi forma de pensamiento actual** 
 Estos comics son producto de la epoca en la que los dibuje y escribi, entonces hay mucho en que trabajar y desarrollar aun 
+
 :)
+
+  **COMICS DISPONIBLES**
+
+  1. Medianoche
+  2. Hoy, mañana y siempre
+  3. Compufobia 
+
 
 **LINK AL DRIVE DONDE SE GUARDAN LOS COMICS**
 
