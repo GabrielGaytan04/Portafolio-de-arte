@@ -10,11 +10,11 @@ Estos comics son producto de la epoca en la que los dibuje y escribi, entonces h
 
   **COMICS DISPONIBLES**
 
-  *1. Medianoche*
+  1. Medianoche
   
-  *2. Hoy, mañana y siempre*
+  2. Hoy, mañana y siempre
   
-  *3. Compufobia*
+  3. Compufobia
 
 
 **LINK AL DRIVE DONDE SE GUARDAN LOS COMICS**
