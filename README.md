@@ -18,7 +18,7 @@ y tambien le dedico todo de mi a los trabajos que se no van a dejar algo.
 
 Si pudiera defhnir mi trabajo con una frase esta sería:
 
-*"Creo portales a otros mundos"*
+*"Creo portales a otros mundos, mundos muy semejantes a los nuestros. Con gente imperfecta y con dolores, pero  tambien con muchas emociones. Los mundos que ofrezco estan rodeados de matices, donde lo blanco y negro solo es una sugerencia"*
 
 
 
