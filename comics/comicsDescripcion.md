@@ -16,6 +16,7 @@ Estos comics son producto de la epoca en la que los dibuje y escribi, entonces h
   
   3. Compufobia
 
+  4, Balde de agua
 
 **LINK AL DRIVE DONDE SE GUARDAN LOS COMICS**
 
