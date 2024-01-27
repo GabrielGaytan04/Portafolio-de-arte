@@ -1,7 +1,7 @@
 # Portafolio-de-arte
 Subo aqui el material de mi portafolio que creo interesante o vale la pena conservar. 
 Cualquier cosa me pueden contactar por instagram o por Correo mi correo electronico:
-**gabriel_gaytan_22@ciencias.unam.mx**
+[angelgabrielperezgaytan@gmail.com]
 
 instagram: 
 [https://www.instagram.com/tengo_the_silent_man/?igsh=eTlud3p4MTJvdXRi]
