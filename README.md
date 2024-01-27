@@ -4,7 +4,7 @@ Cualquier cosa me pueden contactar por instagram o por Correo mi correo electron
 **gabriel_gaytan_22@ciencias.unam.mx**
 
 instagram: 
-[https://www.instagram.com/vintagehaskman/]
+[https://www.instagram.com/tengo_the_silent_man/?igsh=eTlud3p4MTJvdXRi]
 
 Soy un fan de la musica y los comics vintage. 
 
